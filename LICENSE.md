@@ -1,4 +1,4 @@
-# 
+# Premium MEV sniper bot plantillas para Mac OS | Último MEV sniper bot plantillas para PC Windows. Con análisis de datos y ejecución de paquetes — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
